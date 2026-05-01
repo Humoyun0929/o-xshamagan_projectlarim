@@ -1,1 +1,1 @@
-# o-xshamagan_projectlarim
+# o'xshamagan_projectlarim
